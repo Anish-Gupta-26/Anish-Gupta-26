@@ -1,1 +1,1 @@
-<img width="1400" height="350" alt="image" src="https://github.com/user-attachments/assets/4aac0442-48a1-4a5f-a2ff-9967bafeeb64" />
+<img width="1584" height="396" alt="Abstract Technology Profile LinkedIn Banner (2)" src="https://github.com/user-attachments/assets/b216ff5c-5815-457e-8c7a-664a009ec17a" />
